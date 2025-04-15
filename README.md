@@ -25,7 +25,7 @@ Market research for AI/ML products in specific industries
 ### 📫 Reach Me
 - ✉️ Email: abdulrc9724@gmail.com
 - 🐦 X:  @Abdulrc97.[ https://x.com/AbdulRc97?t=tDEryWeHnVIEupJ4VWUmzw&s=09](https://x.com/AbdulRc97?t=tDEryWeHnVIEupJ4VWUmzw&s=09)
-- 💼 LinkedIn: [Abdul Professional](www.linkedin.com/in/абдул-рачаб-748484360) 
+- 💼 LinkedIn: [Abdul Muhrajab](www.linkedin.com/in/абдул-рачаб-748484360) 
 ---
 ### ⚡ Fun Facts:
 - Learned humility through an AI model with 90% prediction errors 😅  
